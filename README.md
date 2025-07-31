@@ -1,0 +1,1 @@
+# SmartSpider_Shop_by_Nova8
